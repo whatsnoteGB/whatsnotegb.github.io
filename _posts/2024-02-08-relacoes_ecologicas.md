@@ -8,6 +8,6 @@ categories: jekyll update
 
 ## relações ecológicas
   
-eu gostaria que um mês fosse sempre mais do que o suficiente pra esclarecer se uma ligação é simbiose, parasitismo-mútuo ou predação   
+eu gostaria que um mês fosse sempre mais do que o suficiente pra esclarecer se um elo é simbiose, parasitismo-mútuo ou simples predação
 - GB (02/2024)
 
