@@ -4,6 +4,7 @@ title:  "lutos do perdão"
 date:   2022-04-06 19:03:04 -0300
 categories: jekyll update
 ---
+<style>body {text-align: justify}</style>
 
 ##### Perdão tardio, Transgressão adiantada
   
