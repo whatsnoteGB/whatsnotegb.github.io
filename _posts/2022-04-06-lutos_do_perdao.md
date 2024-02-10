@@ -8,6 +8,7 @@ date:   2022-04-06 19:03:04 -0300
 ##### Perdão tardio, Transgressão adiantada
   
 {:refdef: .text-justify #id title="text-justify"}
+
 E então, em protesto à cena, cometi o mais caro e vergonhoso ato que custou quase toda minha reputação...
 _"não quero mais, obrigada"_
   
