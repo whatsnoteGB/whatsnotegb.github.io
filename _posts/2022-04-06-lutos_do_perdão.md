@@ -1,7 +1,7 @@
 ---
 layout: default
 title:  "lutos do perdão"
-date:   2024-04-6 19:03:04 -0300
+date:   2024-04-06 19:03:04 -0300
 categories: jekyll update
 ---
 
