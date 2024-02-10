@@ -9,7 +9,7 @@ date:   2022-04-06 19:03:04 -0300
   
 <p style='text-align: justify;'>  
 E então, em protesto à cena, cometi o mais caro e vergonhoso ato que custou quase toda minha reputação...
-_"não quero mais, obrigada"_
+<i>"não quero mais, obrigada"</i>
   
 Se houvesse uma empresa divina na qual o comércio impuro - porém fiel - de sentimentos fosse seu grande canal de lucros,
 o sentimento mais caro, o produto mais raro, seria o perdão. 
@@ -21,7 +21,7 @@ O anticorpo lá continua, enquanto o título da ruína submeteu-se a um naufrág
 “não recordo exato quem, o quê, e muito menos quando, mas... -aprendizado sem cronologia e autor-”.
 Perdoar é ceder, fortalece o corpo e enfraquece a alma.
   
-> Depois de tamanha descoberta iniciou-se um processo fantasioso que chamo de quadros da humilhação.
+<blockquote><p> Depois de tamanha descoberta iniciou-se um processo fantasioso que chamo de quadros da humilhação.</p></blockquote>
 Quadros, cada qual com uma cena humilhante, que me faziam formigar de arrependimento, eram incessantemente pintados pela minha consciência. Sem limites, o primeiro levando ao segundo, o segundo levando ao terceiro, 
 um elemento externo levando ao quarto e assim surge um movimento artístico dentro de mim, e os créditos dessa coleção
 são dessa descoberta provida pelo mais inocente ato de checar a inércia do ser humano. Hábito dos iludidos.
