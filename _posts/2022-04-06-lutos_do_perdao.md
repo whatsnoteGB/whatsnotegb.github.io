@@ -55,6 +55,6 @@ Sozinha, portanto, ficarei.
   
 Ideia desnutrida, medíocre, e porque não dizer burra. O ciclo se repetirá com propriedade sempre que eu me esforçar em não deixá-lo acontecer.
   
-
+{: .text-justify}
 
 -GB (Apr/2022)
