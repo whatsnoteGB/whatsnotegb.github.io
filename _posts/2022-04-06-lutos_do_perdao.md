@@ -12,9 +12,7 @@ _"não quero mais, obrigada"_
 {: .text-justify}
   
 Se houvesse uma empresa divina na qual o comércio impuro - porém fiel - de sentimentos fosse seu grande canal de lucros, o sentimento mais caro, o produto mais raro, seria o perdão. 
-Mimetizar o perdão para implanta-lo em um coração sofrente significa esforço sorrateiro em desfazer ou sobrescrever cada migalha de sentimento passado antes do pecado-chave (incluso ele per se), e em processo final, encontrar substituição
-em matéria de bondade (ou favor), ou ainda, em última instância, uma justificativa ao nível dos destroços, afim de desviar 
-para todo o sempre o nojo que o sofrido sente pelo pecador. Mas euzinha não compraria o perdão. 
+Mimetizar o perdão para implanta-lo em um coração sofrente significa esforço sorrateiro em desfazer ou sobrescrever cada migalha de sentimento passado antes do pecado-chave (incluso ele per se), e em processo final, encontrar substituição em matéria de bondade (ou favor), ou ainda, em última instância, uma justificativa ao nível dos destroços, afim de desviar para todo o sempre o nojo que o sofrido sente pelo pecador. Mas euzinha não compraria o perdão. 
 Veja, além de caro, conduz ao ralo o desenvolvimento de uma ímproba imunidade contra o mundo... Esquecer é melhor do que perdoar. 
 O anticorpo lá continua, enquanto o título da ruína submeteu-se a um naufrágio atemporal; “não recordo exato quem, o quê, e muito menos quando, mas... -aprendizado sem cronologia e autor-”.
 Perdoar é ceder, fortalece o corpo e enfraquece a alma.
