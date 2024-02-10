@@ -7,7 +7,7 @@ date:   2022-04-06 19:03:04 -0300
 
 ##### Perdão tardio, Transgressão adiantada
   
-  
+<p style='text-align: justify;'>  
 E então, em protesto à cena, cometi o mais caro e vergonhoso ato que custou quase toda minha reputação...
 _"não quero mais, obrigada"_
   
@@ -55,5 +55,6 @@ Sozinha, portanto, ficarei.
   
 Ideia desnutrida, medíocre, e porque não dizer burra. O ciclo se repetirá com propriedade sempre que eu me esforçar em não deixá-lo acontecer.
   
+</p>
 
 -GB (Apr/2022)
