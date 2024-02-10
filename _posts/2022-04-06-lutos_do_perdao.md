@@ -22,6 +22,4 @@ Ha uma dúzia de amores, estava mergulhada no mais puro escopo romântico amoros
 
 Ideia desnutrida, medíocre, e porque não dizer burra.
   
-- GB (04/22) 
-
-
+- GB (04/22)
