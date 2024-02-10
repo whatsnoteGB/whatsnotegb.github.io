@@ -24,6 +24,11 @@ categories: jekyll update
 [ ] The French Dispatch
 
  
-> pequenas listas que me iludem por estão alcaçando algum objetivo já me fizeram bem e agora são só uma agenda onde se escreve no futuro mas ninguem sabe em qual página. não se vou viver, se vou ver, com quem. mas a página fica reservada na agenda, escrita com uma diafaneidade que varia de disposições dependentes majoritariamente de mim e ainda sim sigo sem terminá-las.
+> pequenas listas que me iludem como se estivesse alcaçando algum objetivo já me fizeram bem.
+> agora são só uma agenda onde forçosamente se escreve no futuro mas ninguem sabe em qual página.
+> não sei se vou viver, se vou ver, com quem, quando, onde e nem as consequências.
+> a página fica reservada na agenda, escrita com uma diafaneidade que varia de _disposições_ majoritariamente dependentes de mim
+> e ainda sim ;;;; sigo sem terminá-las ;;;; nunca há ânsia em terminar uma tarefa. 
+> **valente aquele que começa e que termina.** 
    
 -GB (Oct/2021)
