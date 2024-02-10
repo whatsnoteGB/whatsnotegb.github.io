@@ -4,7 +4,7 @@ title:  "lutos do perdão"
 date:   2022-04-06 19:03:04 -0300
 categories: jekyll update
 ---
-<style>body {text-align: justify}</style>
+<div style='text-align: justify;'>
 
 ##### Perdão tardio, Transgressão adiantada
   
@@ -56,4 +56,5 @@ Sozinha, portanto, ficarei.
   
 Ideia desnutrida, medíocre, e porque não dizer burra. O ciclo se repetirá com propriedade sempre que eu me esforçar em não deixá-lo acontecer.
   
+ </div>
 -GB (Apr/2022)
