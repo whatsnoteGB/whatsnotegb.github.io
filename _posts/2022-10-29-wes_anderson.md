@@ -2,7 +2,6 @@
 layout: default
 title:  "wes anderson"
 date:   2022-10-29 19:03:04 -0300
-categories: jekyll update
 ---
 
 ### wes track  
