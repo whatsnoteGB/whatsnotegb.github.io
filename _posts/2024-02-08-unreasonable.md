@@ -2,7 +2,6 @@
 layout: default
 title:  "unreasonable"
 date:   2024-02-08 19:03:04 -0300
-categories: jekyll update
 ---
 
 
