@@ -1,8 +1,7 @@
 ---
 layout: default
 title:  "a saída do labirinto de exceções"
-date:   2024-02-10 19:03:04 -0300
-categories: jekyll update
+date:   2024-02-09 19:03:04 -0300
 ---
 
 #### A saída do labirinto de exceções
