@@ -1,7 +1,7 @@
 ---
 layout: default
 title:  "lutos do perdão"
-date:   2024-04-06 19:03:04 -0300
+date:   2022-04-06 19:03:04 -0300
 categories: jekyll update
 ---
 
@@ -60,4 +60,4 @@ Sozinha, portanto, ficarei.
   
 Ideia desnutrida, medíocre, e porque não dizer burra. O ciclo se repetirá sempre que eu me esforçar em não deixá-lo seguir.
   
--GB (04/22)
+-GB (Apr/2022)
