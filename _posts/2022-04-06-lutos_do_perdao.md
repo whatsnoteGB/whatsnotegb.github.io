@@ -26,15 +26,13 @@ E o quão gentil, educada, bem formada, doce, e, muito provavelmente, merecedora
 Até onde chegam os materiais de acesso público, Lúcifer não tem defeitos.
 {: .text-justify}
   
-Procuro então, de maneira desesperada, traços, informações ou interações na tentativa de encontrar uma justificativa para esta união que tenha a ver comigo. Incessantemente busco em suas fotos alguma bandeira ou legenda que a remeta a mim, algum local que estive, alguma palavra que publiquei, algum comentário em outro idioma... qualquer referência.
-Mas não encontro. Como poderia ele ter se apaixonado, sequer se interessado por alguém sem ter notado algum elo com sua antiga paixão?
+Procuro então, de maneira desesperada, traços, informações ou interações na tentativa de encontrar uma justificativa para esta união que tenha a ver comigo. Incessantemente busco em suas fotos alguma bandeira ou legenda que a remeta a mim, algum local que estive, alguma palavra que publiquei, algum comentário em outro idioma... qualquer referência. Mas não encontro. Como poderia ele ter se apaixonado, sequer se interessado por alguém sem ter notado algum elo com sua antiga paixão?
 Isso invalida todo o seu discurso mesquinho, todas as suas cartas.
 Em tradução seria: o mais ardente fogo fora apagado por uma criatura idosa em seu centenário, soprando vela una, secular, sobre o bolo de aniversário.
 {: .text-justify}
   
 A sequência de sentimentos um tanto contraditória trouxe-me ao maior limbo de convites amorosos.
-Um alívio imediato foi custosamente arrastado pelo livramento de uma grande culpa, um poço de “por quês” foi esvaziado quando,
-finalmente, o estimado encontra alguém que o corresponda.
+Um alívio imediato foi custosamente arrastado pelo livramento de uma grande culpa, um poço de “por quês” foi esvaziado quando, finalmente, o estimado encontra alguém que o corresponda.
 O destino incumbe outra desta responsabilidade.
 Tal troca diz, se o divino sofre, tornar-se-á culpa e autoria de Lúcifer, e não mais minha! 
 Em seguida, a nova anonimidade deste ser em minhas conexões sofre, pois aquele que vivia por mim ja não está mais disponível.
