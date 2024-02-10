@@ -2,4 +2,4 @@ remote_theme: whatsnoteGB/jekyll-theme-gb-console
 title: every day the same mistake
 description: just a notepad
 
-permalink: /blog/:categories/:year/:month/:day/:title/
+permalink: /:year/:month/:day/:title/
