@@ -7,17 +7,17 @@ categories: jekyll update
 
 ### wes track
 
-- [x] ✔ Isle of Dogs
-- [x] ✔ The Grand Budapest Hotel
-- [x] ✔ Moonrise Kingdom 
-- [x] ✔ Fantastic Mr. Fox
-- [x] ✔ The Royal Tenenbaums
-- [x] ✔ Rushmore
-- [x] ✔ The Life Aquatic with Steve Zissou
-- [x] ✔ Hotel Chavalier
-- [x] ✔ Bottle Rocket
-- [x] ✔ The Darjeeling Limited
-- [x] ✔ Cousin Ben Troop Screening with Jason Schwartzman - short
+- ✔ Isle of Dogs
+- ✔ The Grand Budapest Hotel
+- ✔ Moonrise Kingdom 
+- ✔ Fantastic Mr. Fox
+- ✔ The Royal Tenenbaums
+- ✔ Rushmore
+- ✔ The Life Aquatic with Steve Zissou
+- ✔ Hotel Chavalier
+- ✔ Bottle Rocket
+- ✔ The Darjeeling Limited
+- ✔ Cousin Ben Troop Screening with Jason Schwartzman - short
  Escapes
 - [ ] The Squid and the Whale
 - [ ] She's Funny That Way
