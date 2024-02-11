@@ -1,8 +1,13 @@
 ---
-layout: default
-title:  "problems"
-date:   2022-12-31 19:03:04 -0300
+layout: page
+title: /problems
+permalink: /problems/
 ---
+
+~~~
+date:   2022-12-31 19:03:04 -0300
+~~~
+
 We're on.
 After a long time.
 
