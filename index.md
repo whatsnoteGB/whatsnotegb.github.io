@@ -1,5 +1,5 @@
 ---
-title: /sweet home
+title: /where the pants aren't
 layout: home
 permalink: /
 ---
