@@ -8,8 +8,8 @@ date:   2023-10-09 19:03:04 -0300
 >> Toilet — always backed up  
 >> Rakel’s trash-o-rama 1000 hopeless projects  
   
---- hi rakel  
-  what s up  
+--- hi rakel
+  what s up
   what are you thinking about?
 --- sperm 
    
