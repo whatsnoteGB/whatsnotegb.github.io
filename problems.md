@@ -11,7 +11,8 @@ Me:
 <img src="/assets/images/xb.jpg" alt="ME" width="200" />
 Us:
 We're on.
-After a long time
+After a long time  
+
 **Feb 9th 2024:** this thing, this whole thing, the notepad
 
 - GB&GB (Fev/2024)
