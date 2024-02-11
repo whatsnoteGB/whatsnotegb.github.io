@@ -1,5 +1,5 @@
 ---
-title: /
+title: sweet home
 layout: home
 permalink: /
 ---
