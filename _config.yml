@@ -2,5 +2,9 @@ remote_theme: whatsnoteGB/jekyll-theme-gb-console
 title: every day the same mistake
 description: just a notepad
 
+header_pages:
+  - index.md
+  - problems.md
+
 permalink: /:year/:month/:day/:title/
 timezone: America/Sao_Paulo
