@@ -15,8 +15,7 @@ O foco é:
 * Não respeitar opiniões divergentes sempre oprimindo ou sendo oprimido 
 * Ser alienado pela mídia e pela imposição dos opressores 
 * Sendo estas o que vi enquanto estava no ônibus a caminho do museu da América latina. 
-
-
+  
 A idéia de sair daqui, é de que outros povos não partilhem dessa sujeira atrelada às pessoas e assim ter uma qualidade de vida melhor. 
 
 
