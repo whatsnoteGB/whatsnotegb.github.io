@@ -57,7 +57,7 @@ Não acredito em quase nada; não porque acho que são inverdades mas penso que 
 * _tonight feels impossible_
 * _i see the great escape; i picked the petals, he loves me not. something different bloomed_
 * _he wanted it comfortable i wanted that pain_
-* _i broke his hear cause he was nice_
+* _i broke his heart cause he was nice_
 * _i don't remember who i was before you painted all my nights a color i've searched for since_
 * _but one thing after another, fucking situations, circumstances, miscommunications and i have to say,by the way, i just may like some explanations. can i ask you a question?_
 * _did you leave her house in the middle of the night?_
