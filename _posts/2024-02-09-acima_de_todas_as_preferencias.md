@@ -15,7 +15,7 @@ Subo na mesma montanha, respirando o mesmo ar, contudo, mais profundamente, com 
   
 Sou eu novamente. Encore moi. Déjà? Derechef, en tout cas.
   
--GB (Fev/2024)
+--- GB (Fev/2024)
 
 
 
