@@ -4,14 +4,15 @@ title:  "i see the great escape"
 date:   2024-02-10 1:03:04 -0300
 ---
 
-Simplesmente como todas as coisas, acredito que qualquer uma é [trop beau pour être vrai](https://www.youtube.com/watch?v=NHGAO0hcKkA).  
-Não acredito em quase nada; não porque acho que são inverdades mas penso que são omissões e sabendo que não tenho coragem de cavar (porque não quero descobrir e muito menos lidar), então como sempre seguirei fadada a viver comendo minha própria garganta --- sufocando, agonizando, esperando o pior a cada 5 minutos --- mas conseguiria voltar a viver isso depois de tantos anos de paz?
+Simplesmente como todas as coisas, sem exceção, tudo é [trop beau pour être vrai](https://www.youtube.com/watch?v=NHGAO0hcKkA).  
+Não acredito em quase nada; não porque acho que são inverdades mas penso que possuem omissões e sabendo que não tenho coragem de cavar (porque não quero descobrir e muito menos lidar),  seguirei fadada a viver comendo minha própria garganta --- sufocando, agonizando, esperando o pior a cada 5 minutos --- eu consigo mesmmo voltar a viver isso depois de tantos anos de paz?
 {: .text-justify}
 
-### taylor current best fittin statements from midnights:
+### taylor current best fittin statements from midnights whole album:
 ##### (same order i listened to):
-
-
+(starting from you're on your own, kid)
+  
+  
 * _i wait patiently he's gonna notice me, it's okay we're the best of friends. anyway._
 * _i didn't choose this town, i dream of getting out_
 * _sometimes i wonder which one will be your last lie_
@@ -50,7 +51,11 @@ Não acredito em quase nada; não porque acho que são inverdades mas penso que 
 * _how the hell did we lose sight of us again?_
 * _i feel you no matter what_
 * _when you splashed your wine into me and how the blood rushed into my cheeks so scarlet it was maroon_
-* 
-
+* _and i wake w your memory over me, that's a real fucking legacy to leave_
+* _i should not be left to my own devices, they come with prices and vices, i ended up in crises_
+* _i wake up screaming from dreaming one day i'll watch as you'r leaving cause you got tired of my scheming for the last time_
+* _i'll stare directly at the sun but never in the mirror_
+* _tonight feels impossible_
+* _i see the great escape; i picked the petals, he loves me not. something different bloomed_
 
 --- GB (Fev/2024)
