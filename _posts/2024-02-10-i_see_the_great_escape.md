@@ -18,6 +18,16 @@ Não acredito em quase nada; não porque acho que são inverdades mas penso que 
 > _familiarity breeds contempt_ 
 > _i keep my side of the street clean, you wouldn't know what i mean_
 > _they saud the end is coming; everyone s up to something, i find myself running home to your sweet nothings_
+> _the planets and the fates and all the stars aligned you and i ended up in the same room at the same time_
+> _i'm only cryptic and machiavellian cause i care_
+> _cursed you as i sleep talked_
+> _maybe it's the past that's talking screamin from the crypt, tellin me to punish you for things you never did; so i justified it_
+> _somewhere in the haze, got a sense i'd been betrayed_
+> _every single thing i touch becomes sick with sadness_
+> _you were bigger than the whole sky, you were more than just a short time_
+> _it's not meant to be, so i'll say words i don't believe (in)_
+> _no i didn't but thanks though; i m so in love that i might stop breathing, drew a map on your bedroom ceiling. no i didn't see the news cause we were somewhere else_
+
 
 
 --- GB (Fev/2024)
