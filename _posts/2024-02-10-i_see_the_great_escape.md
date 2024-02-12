@@ -65,7 +65,7 @@ Não acredito em quase nada; não porque acho que são inverdades mas penso que 
 * _i'm on my vigilante shit again_
 * _i made you my world, have you heard i can reclaim the land?_
 * _never trust it if it rises fast_ 
-{: .text-justify; direction:rtl;}
+{: .text-justify; .direction:rtl;}
 
     
 --- GB (Fev/2024)
