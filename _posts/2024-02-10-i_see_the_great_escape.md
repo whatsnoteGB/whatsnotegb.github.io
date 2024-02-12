@@ -66,4 +66,5 @@ Não acredito em quase nada; não porque acho que são inverdades mas penso que 
 * _i made you my world, have you heard i can reclaim the land?_
 * _never trust it if it rises fast_ 
 
+    
 --- GB (Fev/2024)
