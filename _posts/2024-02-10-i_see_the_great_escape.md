@@ -9,7 +9,9 @@ Não acredito em quase nada; não porque acho que são inverdades mas penso que 
 {: .text-justify}
 
 ### taylor current best fittin statements from midnights:
-  
+##### (same order i listened to):
+
+
 * _i wait patiently he's gonna notice me, it's okay we're the best of friends. anyway._
 * _i didn't choose this town, i dream of getting out_
 * _sometimes i wonder which one will be your last lie_
@@ -43,6 +45,11 @@ Não acredito em quase nada; não porque acho que são inverdades mas penso que 
 * _each bar plays our song, nothin has ever felt so wrong_
 * _life is emotionally abusive_
 * _time can't stop me quite like you did_
+* _when the morning came we were cleaning incense off ur vinyl shelf cause we lost track of time again laughing w my feet in your lap like you were my closest friend_
+* _how'd we end up on the floor anyway?_
+* _how the hell did we lose sight of us again?_
+* _i feel you no matter what_
+* _when you splashed your wine into me and how the blood rushed into my cheeks so scarlet it was maroon_
 * 
 
 
