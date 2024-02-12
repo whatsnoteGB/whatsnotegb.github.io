@@ -67,5 +67,6 @@ Não acredito em quase nada; não porque acho que são inverdades mas penso que 
 * _never trust it if it rises fast_ 
 {: .direction:right; .text-justify; }
 
-  
+   
+   
 --- GB (Fev/2024)
