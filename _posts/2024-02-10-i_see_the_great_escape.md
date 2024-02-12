@@ -65,7 +65,7 @@ Basicamente acredito em nada; não porque soam inverdades mas sinto de todas as 
 * _did you leave her house in the middle of the night?_
 * _do you wish you could still touch her?_
 * _never trust it if it rises fast_ 
-{: .text-justify; }
+{: .text-justify .paragraph-size-33 }
 
    
    
