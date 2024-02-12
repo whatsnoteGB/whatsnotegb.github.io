@@ -5,13 +5,13 @@ date:   2024-02-10 1:03:04 -0300
 ---
 
 Simplesmente como todas as coisas, sem exceção, tudo é [trop beau pour être vrai](https://www.youtube.com/watch?v=NHGAO0hcKkA).  
-Não acredito em quase nada; não porque acho que são inverdades mas penso que possuem omissões e sabendo que não tenho coragem de cavar (porque não quero descobrir e muito menos lidar),  seguirei fadada a viver comendo minha própria garganta --- sufocando, agonizando, esperando o pior a cada 5 minutos --- eu conseguiria voltar a viver isso depois de tantos anos de paz?
+Não acredito em quase nada; não porque acho que são inverdades mas penso que possuem omissões e sabendo que não tenho coragem de cavar (porque não quero descobrir e muito menos lidar), seguirei fadada a me corroer em cada mistério comendo minha própria garganta --- sufocando, agonizando, esperando o pior a cada 5 minutos --- eu conseguiria voltar a viver isso depois de tantos anos de paz? acho que não.
 {: .text-justify}
 
 ### taylor current best fittin statements from midnights whole album:
 ##### (almost the same order i listened to):
-  
-  
+
+   
 * _i wait patiently he's gonna notice me, it's okay we're the best of friends. anyway._
 * _i didn't choose this town, i dream of getting out_
 * _sometimes i wonder which one will be your last lie_
@@ -67,5 +67,5 @@ Não acredito em quase nada; não porque acho que são inverdades mas penso que 
 * _never trust it if it rises fast_ 
 {: .direction:right; .text-justify; }
 
-    
+  
 --- GB (Fev/2024)
