@@ -41,14 +41,14 @@ Não acredito em quase nada; não porque acho que são inverdades mas penso que 
 * _the wound wont close, i keep on waiting for a sign_
 * _i regret you all the time_
 * _never take advice from someone who's falling apart_
-* _i pictured you with othre girls, in love, then threw up on the street_
+* _i pictured you with other girls, in love, then threw up on the street_
 * _each bar plays our song, nothin has ever felt so wrong_
 * _life is emotionally abusive_
 * _time can't stop me quite like you did_
 * _when the morning came we were cleaning incense off ur vinyl shelf cause we lost track of time again laughing w my feet in your lap like you were my closest friend_
 * _how'd we end up on the floor anyway?_
 * _how the hell did we lose sight of us again?_
-* _i feel you no matter what_
+* _i feel you, no matter what_
 * _when you splashed your wine into me and how the blood rushed into my cheeks so scarlet it was maroon_
 * _and i wake w your memory over me, that's a real fucking legacy to leave_
 * _i should not be left to my own devices, they come with prices and vices, i ended up in crises_
@@ -58,12 +58,12 @@ Não acredito em quase nada; não porque acho que são inverdades mas penso que 
 * _i see the great escape; i picked the petals, he loves me not. something different bloomed_
 * _he wanted it comfortable i wanted that pain_
 * _i broke his heart cause he was nice_
-* _i don't remember who i was before you painted all my nights a color i've searched for since_
-* _but one thing after another, fucking situations, circumstances, miscommunications and i have to say,by the way, i just may like some explanations. can i ask you a question?_
-* _did you leave her house in the middle of the night?_
-* _do you wish you could still touch her?_
 * _i'm on my vigilante shit again_
 * _i made you my world, have you heard i can reclaim the land?_
+* _i don't remember who i was before you painted all my nights a color i've searched for since_
+* _but one thing after another, fucking situations, circumstances, miscommunications and i have to say, by the way, i just may like some explanations. can i ask you a question?_
+* _did you leave her house in the middle of the night?_
+* _do you wish you could still touch her?_
 * _never trust it if it rises fast_ 
 {: .direction:right; .text-justify; }
 
