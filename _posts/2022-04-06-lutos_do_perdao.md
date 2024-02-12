@@ -51,4 +51,4 @@ Ideia desnutrida, medíocre, e porque não dizer burra. O ciclo se repetirá com
 {: .text-justify}
 
 
--GB (Apr/2022)
+---GB (Apr/2022)
