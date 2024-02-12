@@ -9,8 +9,7 @@ Não acredito em quase nada; não porque acho que são inverdades mas penso que 
 {: .text-justify}
 
 ### taylor current best fittin statements from midnights whole album:
-##### (same order i listened to):
-(starting from you're on your own, kid)
+##### (almost the same order i listened to):
   
   
 * _i wait patiently he's gonna notice me, it's okay we're the best of friends. anyway._
@@ -57,5 +56,14 @@ Não acredito em quase nada; não porque acho que são inverdades mas penso que 
 * _i'll stare directly at the sun but never in the mirror_
 * _tonight feels impossible_
 * _i see the great escape; i picked the petals, he loves me not. something different bloomed_
+* _he wanted it comfortable i wanted that pain_
+* _i broke his hear cause he was nice_
+* _i don't remember who i was before you painted all my nights a color i've searched for since_
+* _but one thing after another, fucking situations, circumstances, miscommunications and i have to say,by the way, i just may like some explanations. can i ask you a question?_
+* _did you leave her house in the middle of the night?_
+* _do you wish you could still touch her?_
+* _i'm on my vigilante shit again_
+* _i made you my world, have you heard i can reclaim the land?_
+* _never trust it if it rises fast_ 
 
 --- GB (Fev/2024)
