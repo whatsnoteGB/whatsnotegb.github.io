@@ -18,5 +18,4 @@ O foco é:
   
 A idéia de sair daqui, é de que outros povos não partilhem dessa sujeira atrelada às pessoas e assim ter uma qualidade de vida melhor. 
 
-
-* GB (May/2013)
+--- GB (May/2013)
