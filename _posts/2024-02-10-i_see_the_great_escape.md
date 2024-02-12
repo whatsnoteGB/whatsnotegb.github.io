@@ -13,11 +13,11 @@ Basicamente acredito em nada; não porque soam inverdades mas sinto de todas as 
 
    
 >>> * _i wait patiently he's gonna notice me, it's okay we're the best of friends. anyway._
->>> * _i didn't choose this town, i dream of getting out_
->>> * _sometimes i wonder which one will be your last lie_
->>> * _just to learn that you never care_
->>> * _i don't start shit but i can tell you how it ends_
->>> * _familiarity breeds contempt_ 
+ * _i didn't choose this town, i dream of getting out_
+ * _sometimes i wonder which one will be your last lie_
+ * _just to learn that you never care_
+* _i don't start shit but i can tell you how it ends_
+* _familiarity breeds contempt_ 
 * _i keep my side of the street clean, you wouldn't know what i mean_
 * _they said the end is coming; everyone s up to something, i find myself running home to your sweet nothings_
 * _the planets and the fates and all the stars aligned: you and i ended up in the same room at the same time_
@@ -65,7 +65,7 @@ Basicamente acredito em nada; não porque soam inverdades mas sinto de todas as 
 * _did you leave her house in the middle of the night?_
 * _do you wish you could still touch her?_
 * _never trust it if it rises fast_ 
-{: .direction:right; .text-justify; }
+{: .text-justify; }
 
    
    
