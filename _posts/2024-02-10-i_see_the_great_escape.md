@@ -4,12 +4,12 @@ title:  "i see the great escape"
 date:   2024-02-10 1:03:04 -0300
 ---
 
-Simplesmente, como tudo, acredito que qualquer coisa é [trop beau pour être vrai](https://www.youtube.com/watch?v=NHGAO0hcKkA). 
-Não acredito em quase nada; não porque acho que são inverdades mas penso que são omissões e sabendo que não tenho coragem de cavar (porque não quero descobrir e lidar), então como sempre estarei fadada a viver comendo minha própria garganta --- sufocando, agonizando, esperando o pior a cada 5 minutos --- e consigo voltar a viver isso depois de tantos anos de paz?
+Simplesmente como todas as coisas, acredito que qualquer uma é [trop beau pour être vrai](https://www.youtube.com/watch?v=NHGAO0hcKkA).  
+Não acredito em quase nada; não porque acho que são inverdades mas penso que são omissões e sabendo que não tenho coragem de cavar (porque não quero descobrir e muito menos lidar), então como sempre seguirei fadada a viver comendo minha própria garganta --- sufocando, agonizando, esperando o pior a cada 5 minutos --- mas conseguiria voltar a viver isso depois de tantos anos de paz?
 {: .text-justify}
 
 ### taylor current best fittin statements from midnights:
-
+  
 * _i wait patiently he's gonna notice me, it's okay we're the best of friends. anyway._
 * _i didn't choose this town, i dream of getting out_
 * _sometimes i wonder which one will be your last lie_
@@ -17,8 +17,8 @@ Não acredito em quase nada; não porque acho que são inverdades mas penso que 
 * _i don't start shit but i can tell you how it ends_
 * _familiarity breeds contempt_ 
 * _i keep my side of the street clean, you wouldn't know what i mean_
-* _they saud the end is coming; everyone s up to something, i find myself running home to your sweet nothings_
-* _the planets and the fates and all the stars aligned you and i ended up in the same room at the same time_
+* _they said the end is coming; everyone s up to something, i find myself running home to your sweet nothings_
+* _the planets and the fates and all the stars aligned: you and i ended up in the same room at the same time_
 * _i'm only cryptic and machiavellian cause i care_
 * _cursed you as i sleep talked_
 * _maybe it's the past that's talking screamin from the crypt, tellin me to punish you for things you never did; so i justified it_
@@ -32,7 +32,17 @@ Não acredito em quase nada; não porque acho que são inverdades mas penso que 
 * _do i really have to chart the constellations in his eyes?_
 * _you know there's many different ways that you can kill the one you love; the slowlest way is never loving them enough_
 * _do i really have to tell you how he brought me back to life?_
-* _a brief interruption, a slight malfunction; i'd go back to wanting dudes who give nothing, i thought we had no chance)
+* _a brief interruption, a slight malfunction; i'd go back to wanting dudes who give nothing, i thought we had no chance_
+* _and i damn sure never would've danced with the devil_
+* _memories feel like weapons_
+* _you made me feel important and then you tried to erase us; you re a crisis of my faith_
+* _the wound wont close, i keep on waiting for a sign_
+* _i regret you all the time_
+* _never take advice from someone who's falling apart_
+* _i pictured you with othre girls, in love, then threw up on the street_
+* _each bar plays our song, nothin has ever felt so wrong_
+* _life is emotionally abusive_
+* _time can't stop me quite like you did_
 * 
 
 
