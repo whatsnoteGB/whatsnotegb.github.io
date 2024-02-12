@@ -9,4 +9,4 @@ está fadado a fazer esta escolha. e só pode escolher uma aresta. ciente que no
   
 <img src="/assets/images/arestas-sociais.png" alt="choices" width="200" />
 
---- GB (Fev/2024)
+--- GB (Feb/2024)
