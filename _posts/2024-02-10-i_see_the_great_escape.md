@@ -9,8 +9,8 @@ Basicamente acredito em nada; não porque soam inverdades mas sinto de todas as 
 {: .text-justify}
 
 ### taylor current best fittin statements from midnights whole album:
-##### (in almost the same order i listened to):
-
+(in almost the same order i listened to):  
+  
    
 >>> * _i wait patiently he's gonna notice me, it's okay we're the best of friends. anyway._
  * _i didn't choose this town, i dream of getting out_
