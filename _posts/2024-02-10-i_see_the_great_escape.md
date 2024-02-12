@@ -12,10 +12,10 @@ Basicamente acredito em nada; não porque soam inverdades mas sinto de todas as 
 (in almost the same order i listened to):  
   
    
->>> * _i wait patiently he's gonna notice me, it's okay we're the best of friends. anyway._
- * _i didn't choose this town, i dream of getting out_
- * _sometimes i wonder which one will be your last lie_
- * _just to learn that you never care_
+* _i wait patiently he's gonna notice me, it's okay we're the best of friends. anyway._
+* _i didn't choose this town, i dream of getting out_
+* _sometimes i wonder which one will be your last lie_
+* _just to learn that you never care_
 * _i don't start shit but i can tell you how it ends_
 * _familiarity breeds contempt_ 
 * _i keep my side of the street clean, you wouldn't know what i mean_
