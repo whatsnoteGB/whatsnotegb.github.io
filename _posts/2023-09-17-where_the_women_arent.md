@@ -34,7 +34,7 @@ The worst things (at least that I could think of) that a woman can have
 | 09 | Having a tattoo |
 | 09 | Taking stupid initiatives |
 | 10 | Smoking |
-| 10 | Don't question / study (it's related to being stupid but has an even greater weight) |
+| 10 | Not questioning / studying (it's related to being stupid but has an even greater weight) |
 | 10 | Not having achieved anything and not being interested in achieving anything |
 | 10 | Being lazy |
 | 10 | Being dirty |
