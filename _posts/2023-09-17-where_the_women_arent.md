@@ -7,7 +7,6 @@ date:   2023-09-17 12:06:02 -0300
 The worst things (at least that I could think of) that a woman can have
 
 | Weight | Description |
-
 | 06 | Believing in a Christian God |
 | 06 | Having many contacts and communicating all the time with people without a real purpose |
 | 07 | Not wanting to have children (this is a delicate/variable point) |
