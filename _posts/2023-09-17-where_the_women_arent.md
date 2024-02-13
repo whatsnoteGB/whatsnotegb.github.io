@@ -30,7 +30,7 @@ The worst things (at least that I could think of) that a woman can have
 | 09 | Being obese |
 | 09 | Being a religious fanatic |
 | 09 | Having an immoral history |
-| 09 | Be over 30 years old |
+| 09 | Being over 30 years old |
 | 09 | Having a tattoo |
 | 09 | Taking stupid initiatives |
 | 10 | Smoking |
