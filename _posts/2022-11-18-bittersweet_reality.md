@@ -6,15 +6,15 @@ date:   2022-11-18 19:03:04 -0300
 
 Antes de ir pro Pacaembu há pouco tempo, estávamos na casa do Augusto e lembro que a Dona Vera -com certa propriedade, visto que me conhece desde os 9 anos de idade- disse que só me casaria se achasse um rapaz bonito e virgem que tivesse sido criado por animais, abandonado em uma floresta desde que bebê, já que em meios sociais seria impossível. 
 Perguntou se aguentaria a ideia de criar este adulto que teria crescido "com sabor de chocolate" _(não lembro quem veio com esse termo, só lembro de ouvir chaves balançando porque queríamos sair antes que o assunto prolongasse)_ apenas porque ele preencheria critérios que só são satisfeitos em meios absurdamente controlados (i.e inexistente). Respondi prontamente que sim. Saímos.
-{: .text-justify}  
+{: .text-justify}
 Naquela mesma noite, devido à conjuntura, fiquei pensando como seria se eu tivesse que ensinar todas as coisas que eu gostaria para uma pessoa nessa situação hipotética.
 E o quão deixaria de ser divertido a partir do momento em que eu tivesse o TRABALHO de abrolhar essa educação.
 Isso porque lembro que vibrei a vida toda esperando minha irmã se interessar por carros (motivo pelo qual estávamos na casa do Augusto) e quando comecei a ensinar ela a dirigir no estacionamento da faculdade, a quantidade de questões e pânicos que passavam em minha cabeça não eram possíveis de ser sequer transcritos: NÃO HAVIA UMA ÚNICA FRASE QUE PODIA SER TERMINADA sem que UMA NOVA ATROPELASSE O MEIO DA PRÉVIA. COMPLETAMENTE FORA DO PRAZER E FANTASIA QUE ESQUADRINHEI MINHA VIDA TODA PARA AQUELE MOMENTO.
 Medo de transpassar para ela o ódio com o qual nosso pai me ensinou a dirigir, falando que se um dia ele 'perdesse a cabeça' e matasse minha mãe, eu teria que pegar o carro e sair correndo com minha irmã pra algum lugar que ele não conhecesse. (Essa é sempre a frase que ecoa primeiro quando alguém pergunta "porquê você dá tanta importância pra isso?")
-Medo de causar nela algum trauma se eu não fosse precavida o suficiente para impedir algum incidente naqueles dias de estacionamento. 
-Medo de deixar que ela pudesse sentir algo diferente sobre independência do que foi passado direto da mãe da minha mãe para a minha mãe, e da minha mãe para mim. 
+Medo de causar nela algum trauma se eu não fosse precavida o suficiente para impedir algum incidente naqueles dias de estacionamento.
+Medo de deixar que ela pudesse sentir algo diferente sobre independência do que foi passado direto da mãe da minha mãe para a minha mãe, e da minha mãe para mim.
 Eu nunca vou me perdoar se não cultivar nela a mesma especialidade que passou por 3 gerações e que, visto que eu não teria filhos, a única chance será que minha irmã passe para a dela (**caso** decida ter uma).
-{: .text-justify}   
+{: .text-justify}
 Durante o começo daquela noite barulhenta (na minha cabeça) lembro de dar 3 voltas no carro do Henry sem perceber 1 única completa. Se um cervo entrasse na frente, teria passado por cima, seguido em frente e só depois de 10 minutos uma sombra de "teve algo lá atrás, o que será que foi?" me acordaria.
 Hoje pensei novamente nessa pergunta e percebi que mesmo tendo passado pouco tempo, refleti já o suficiente para mudar essa resposta. 
 Na verdade, para torná-la ainda mais restrita do que era inicialmente. Vera, você está errada. Nem isso seria suficiente. Não pelo bebê-perfeito, e sim pela guerra que minha cabeça trava em qualquer situação que pareça "boa demais" para mim por achar que não mereço. Tomada pelo sentimento de culpa, abandonaria o bebê-perfeito mesmo que (ALIÁS, PRINCIPALMENTE SE) o dito cujo nascesse na floresta e eu pudesse apenas instalar bibliotecas das habilidades que quero sem nenhum esforço. 
