@@ -17,7 +17,8 @@ Eu nunca vou me perdoar se não cultivar nela a mesma especialidade que passou p
 {: .text-justify}
 Durante o começo daquela noite barulhenta (na minha cabeça) lembro de dar 3 voltas no carro do Henry sem perceber 1 única completa. Se um cervo entrasse na frente, teria passado por cima, seguido em frente e só depois de 10 minutos uma sombra de "teve algo lá atrás, o que será que foi?" me acordaria.
 Hoje pensei novamente nessa pergunta e percebi que mesmo tendo passado pouco tempo, refleti já o suficiente para mudar essa resposta. 
-Na verdade, para torná-la ainda mais restrita do que era inicialmente. Vera, você está errada. Nem isso seria suficiente. Não pelo bebê-perfeito, e sim pela guerra que minha cabeça trava em qualquer situação que pareça "boa demais" para mim por achar que não mereço. Tomada pelo sentimento de culpa, abandonaria o bebê-perfeito mesmo que (ALIÁS, PRINCIPALMENTE SE) o dito cujo nascesse na floresta e eu pudesse apenas instalar bibliotecas das habilidades que quero sem nenhum esforço. 
+Na verdade, para torná-la ainda mais restrita do que era inicialmente.  
+Vera, você está errada. Nem isso seria suficiente. Não pelo bebê-perfeito, e sim pela guerra que minha cabeça trava em qualquer situação que pareça "boa demais" para mim por achar que não mereço. Tomada pelo sentimento de culpa, abandonaria o bebê-perfeito mesmo que (ALIÁS, PRINCIPALMENTE SE) o dito cujo nascesse na floresta e eu pudesse apenas instalar bibliotecas das habilidades que quero sem nenhum esforço. 
 Talvez tenha sido a coincidência dessa conversa ter calhado num pré-cenário de um típico evento ligado à uma cadeia de tantas emoções doces e amargas na minha vida, senoidalmente, com comprimentos de onda gigante, sempre doces demais ou amargas demais, tocantes extremos demais, no passado, no presente e provavelmente no futuro.
 {: .text-justify}  
   
