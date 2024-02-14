@@ -1,6 +1,6 @@
 ---
 layout: default
-title:  "arestas sociais"
+title:  "arestas comportamentais"
 date:   2024-02-05 19:03:04 -0300
 ---
 
