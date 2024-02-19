@@ -16,4 +16,9 @@ After a long time
 
 **Feb 9th 2024:** this thing, this whole thing, the notepad
 
-- GB&GB (Fev/2024)
+**Feb 17th - Feb 18th:** dormimos em todas as posições possíveis; ao que tudo indica, existe uma poção sonífera potente na mistura do nosso suor com esperma. se deus existe, ele perde a criatividade às vezes e desenha coisas iguais, isso com certeza inspirou encaixes perfeitos como o USB macho e USB fêmea.
+<img src="/assets/images/office95.png" alt="office95-fitpuzzle" width="200" />
+
+
+  
+- GB&GB 
