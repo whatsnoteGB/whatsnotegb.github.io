@@ -16,7 +16,7 @@ não sei se para M. o livro que lemos era tão especial quanto é pra mim, e vej
 se sou incapaz de julgar a veracidade dessa apreciação tendo participado de todo o processo, como poderei confiar em alguém cujo processo de construção sequer ASSISTI?
 baseio minhas ALEGRIAS em ALEGAÇÕES desprovidas de matéria empírica, emitidas imponderadamente em território d'outre-mer (normalmente de forma impulsiva), o que é, eventualmente... fatal. fatal para o pósconceito. fatal para a imagem do outro. fatal que descampa mesmo os caminhos que levam à pena e condoimento para-com outrem.
 {: .text-justify}
->>> cada pequeno desvio de conduta do que pressuponho como requisito para concepção da pura verdade e nada além da verdade, ergue sempre um muro enorme, desmedido, no caminho da relação entre o sujeito e o que ele "aponta" ser um sentimento ou princípio ou valor.
+>>> cada pequeno desvio de conduta do que pressuponho como requisito para concepção da pura verdade e nada além da verdade, ergue sempre um muro enorme, desmedido, no caminho da relação entre o sujeito e o que ele "aponta" ser um sentimento ou princípio ou valor (como pode arguir um destino final pisando fora da linha? desvios são maneiras desonestas para chegar mais tarde na festa).
 a integridade que me sobra, cava buracos em minha honra para cada situação onde espero tudo e não o tenho. eu odeio eu. se eu assim não fosse, não esperaria instintivamente que os outros assim sejam (como eu), logo, não teria o brio ferido com um graveto de algodão qualquer (que mais entra como um ferrete à temperatura infinita).
 {: .text-justify}
 
