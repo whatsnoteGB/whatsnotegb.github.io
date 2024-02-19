@@ -5,14 +5,15 @@ date:   2024-02-19 03:18:55 -0300
 ---
 ## a idiossincrasia de frates
   
-  
+   
+
 longe de ser a peça mais famosa de arvo pärt, frates sempre será minha favorita.
 o problema da peça é que, de tão longa, é inevitável não ter decepções (qual a chance de ser feliz durante 11 minutos e 28 segundos inteirinhos?), sinto meus sentidos traídos com uma feição selvagem em vários, vários, vários, vários, vários trechos.
 mesmo assim, sigo amando essa peça de forma única.
 não mais e nem menos do que outras composições, mas única. só única. tão única.
 será que um dia descobrirei que alguém ama essa peça de forma especial e ingênua, sem nenhuma razão?
 não sei se para Marina o livro que lemos era tão especial quanto é pra mim, e veja, lemos JUNTAS.
-se sou incapaz de julgar a veracidade dessa apreciação tendo participado de todo o processo, como poderei confiar em alguém cujo processo de construção sequer ASSISTI? baseio minhas ALEGRIAS em ALEGAÇÕES desprovidas de matéria empírica, emitidas imponderadamente em território d'outre-mer (normalmente de forma impulsiva), o que é, eventualmente... fatal. Fatal para o pósconceito. Fatal para a imagem do outro. Fatal que descampa mesmo os caminhos que levam à pena e condoimento para-com outrem.
+se sou incapaz de julgar a veracidade dessa apreciação tendo participado de todo o processo, como poderei confiar em alguém cujo processo de construção sequer ASSISTI? baseio minhas ALEGRIAS em ALEGAÇÕES desprovidas de matéria empírica, emitidas imponderadamente em território d'outre-mer (normalmente de forma impulsiva), o que é, eventualmente... fatal. fatal para o pósconceito. fatal para a imagem do outro. fatal que descampa mesmo os caminhos que levam à pena e condoimento para-com outrem.
 {: .text-justify}
 >>> cada pequeno desvio de conduta do que pressuponho como requisito para concepção da pura verdade e nada além da verdade, ergue sempre um muro enorme, desmedido, no caminho da relação entre o sujeito e o que ele "aponta" ser um sentimento ou princípio ou valor.
 a integridade que me sobra, cava buracos em minha honra para cada situação onde espero tudo e não o tenho. eu odeio eu. se eu assim não fosse, não esperaria instintivamente que os outros assim sejam (como eu), logo, não teria o brio ferido com um graveto de algodão qualquer (que mais entra como um ferrete à temperatura infinita).
