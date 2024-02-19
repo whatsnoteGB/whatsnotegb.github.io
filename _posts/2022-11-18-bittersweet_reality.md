@@ -15,15 +15,15 @@ Medo de causar nela algum trauma se eu não fosse precavida o suficiente para im
 Medo de deixar que ela pudesse sentir algo diferente sobre independência do que foi passado direto da mãe da minha mãe para a minha mãe, e da minha mãe para mim.
 Eu nunca vou me perdoar se não cultivar nela a mesma especialidade que passou por 3 gerações e que, visto que eu não teria filhos, a única chance será que minha irmã passe para a dela (**caso** decida ter uma).
 {: .text-justify}
-Durante o começo daquela noite barulhenta (na minha cabeça) lembro de dar 3 voltas no carro do Henry sem perceber 1 única completa. Se um cervo entrasse na frente, teria passado por cima, seguido em frente e só depois de 10 minutos uma sombra de "teve algo lá atrás, o que será que foi?" me acordaria.
+Durante o começo daquela noite barulhenta (na minha cabeça) lembro de dar 3 voltas no carro do H. sem perceber 1 única completa. Se um cervo entrasse na frente, teria passado por cima, seguido em frente e só depois de 10 minutos uma sombra de "teve algo lá atrás, o que será que foi?" me acordaria.
 Hoje pensei novamente nessa pergunta e percebi que mesmo tendo passado pouco tempo, refleti já o suficiente para mudar essa resposta. 
-Na verdade, para torná-la ainda mais restrita do que era inicialmente.  
+Na verdade, para torná-la ainda mais RESTRITA do que era inicialmente.  
 V., você está errada. Nem isso seria suficiente. Não pelo bebê-perfeito, e sim pela guerra que minha cabeça trava em qualquer situação que pareça "boa demais" para mim por achar que não mereço. Tomada pelo sentimento de culpa, abandonaria o bebê-perfeito mesmo que (ALIÁS, PRINCIPALMENTE SE) o dito cujo nascesse na floresta e eu pudesse apenas instalar bibliotecas das habilidades que quero sem nenhum esforço. 
 Talvez tenha sido a coincidência dessa conversa ter calhado num pré-cenário de um típico evento ligado à uma cadeia de tantas emoções doces e amargas na minha vida, senoidalmente, com comprimentos de onda gigante, sempre doces demais ou amargas demais, tocantes extremos demais, no passado, no presente e provavelmente no futuro.
 {: .text-justify}  
   
 Isso me fez ver que: 
->> --- Eu não vou mudar. Se V. me conhece desde os 9 anos e disse isso, então _sou **eu**_ um caso sem salvação e o que está em minhas mãos é apenas _salvar **de mim**_ as pessoas; (afastá-las sem dar acaso para sofrerem - o que faço com certo afinco desde 2019)
+>> --- Eu não vou mudar. Se V. me conhece desde os [UNIDADE] anos e disse isso, então _sou **eu**_ um caso sem salvação e o que está em minhas mãos é apenas _salvar **de mim**_ as pessoas; (afastá-las sem dar acaso para sofrerem - o que faço com certo afinco desde 2019)
 {: .text-justify}
 >> --- Não importa o quanto finja que mudei por fora, isso sempre e somente iludirá as pessoas ao meu redor, seguirei sofrendo, não há ponto neste nó, qual a razão em fingir que algo mudou ?   
 {: .text-justify}
