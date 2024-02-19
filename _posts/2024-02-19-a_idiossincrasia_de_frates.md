@@ -25,3 +25,11 @@ no final das contas, apenas por idolatrar demais esse livro, acho que já tenho 
 assim é para TODAS as coisas pelas quais eu prezo e admiro.
 se para mim é importante e muito, para o outro será só mais um ou simplesmente indiferente. não sei porquê ainda me abismo. me sinto incessantemente traída em vários, vários, vários, v[...] trechos da vida porque nasci, existo e consequentemente parto do princípio que as pessoas deveriam valorizar os mesmos elementos, no mesmo nível, da mesma maneira, na mesma frequência, em mesm[...]. é imperdoável que encontrei e me esvaeci inadvertidamente da única oportunidade da minha vida de ter isso (sentia o que perdia, entretanto, até hoje e para sempre continuarei sem saber o que teria ganhado --- foi culpa minha não arriscar? o fracasso nessa aposta poderia custar agora mais ao mundo do que custa para mim, sozinha), não acho que o final seria tão diferente; confesso apenas que não imaginei ter no destino _tantas_ desavenças com essa MALDITA idiossincrasia.
 {: .text-justify}
+
+idiossincrasia: s.f.
+1. MEDICINA -- predisposição particular do organismo que faz que um indivíduo reaja de maneira pessoal à influência de agentes exteriores (alimentos, medicamentos etc.).  
+2. característica comportamental peculiar a um grupo ou a uma pessoa.  
+3. característica, comportamento, constituição, disposição, estrutura, temperamento, condição, especificidade, feitio, índole, natureza, particularidade, peculiaridade.  
+{: .text-justify .text-align-last-right}
+  
+--- GB (Feb/2024)
