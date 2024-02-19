@@ -16,8 +16,8 @@ After a long time
 
 **Feb &nbsp;9th 2024:** this thing, this whole thing, the notepad
 
-**Feb 17th+**
-**Feb 18th:** dormimos em todas as posições possíveis; ao que tudo indica, uma poção sonífera muito potente se forma na mistura do nosso suor com esperma. se deus existe, ele perde a criatividade às vezes e desenha coisas iguais, isso com certeza inspirou encaixes perfeitos como o USB macho e USB fêmea.  
+**Feb 17th 2024+**
+**Feb 18th 2024:** dormimos em todas as posições possíveis; ao que tudo indica, uma poção sonífera muito potente se forma na mistura do nosso suor com esperma. se deus existe, ele perde a criatividade às vezes e desenha coisas iguais, isso com certeza inspirou encaixes perfeitos como o USB macho e USB fêmea.  
 <img src="/assets/images/office95.png" alt="office95-fitpuzzle" width="200" />
 
 
