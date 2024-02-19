@@ -27,9 +27,13 @@ se para mim é importante e muito, para o outro será só mais um ou simplesment
 {: .text-justify}
 
 idiossincrasia: s.f.
-\1. MEDICINA -- predisposição particular do organismo que faz que um indivíduo reaja de maneira pessoal à influência de agentes exteriores (alimentos, medicamentos etc.).  
-\2. característica comportamental peculiar a um grupo ou a uma pessoa.  
-\3. característica, comportamento, constituição, disposição, estrutura, temperamento, condição, especificidade, feitio, índole, natureza, particularidade, peculiaridade.  
+1. MEDICINA -- predisposição particular do organismo 
+que faz que um indivíduo reaja de maneira pessoal 
+à influência de agentes exteriores (alimentos, medicamentos etc.).  
+2. característica comportamental peculiar a um grupo ou a uma pessoa.  
+3. característica, comportamento, constituição, disposição,
+ estrutura, temperamento, condição, especificidade, feitio, 
+ índole, natureza, particularidade, peculiaridade.  
 {: .text-justify .text-align-last-right}
   
 --- GB (Feb/2024)
