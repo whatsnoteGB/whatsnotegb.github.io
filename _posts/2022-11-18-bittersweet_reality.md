@@ -25,7 +25,7 @@ Talvez tenha sido a coincidência dessa conversa ter calhado num pré-cenário d
 Isso me fez ver que: 
 >> --- Eu não vou mudar. Se V. me conhece desde os 9 anos e disse isso, então _sou **eu**_ um caso sem salvação e o que está em minhas mãos é apenas _salvar **de mim**_ as pessoas; (afastá-las sem dar acaso para sofrerem - o que faço com certo afinco desde 2019)
 {: .text-justify}
->> --- Não importa o quanto eu finja que mudei por fora, isso sempre e somente iludirá as pessoas ao meu redor, seguirei sofrendo, não há ponto neste nó, qual a razão em fingir que algo mudou ?   
+>> --- Não importa o quanto finja que mudei por fora, isso sempre e somente iludirá as pessoas ao meu redor, seguirei sofrendo, não há ponto neste nó, qual a razão em fingir que algo mudou ?   
 {: .text-justify}
 >> --- É uma areia movediça, quanto mais tento mexer para sair da lama, mais me afundo, mais me sujo, mais me exponho; ficar longe de tema com escopo amorososo ou sexual e cortar qualquer indício de escavação arqueológica neste tópico com qualquer pessoa que se importe é o melhor a fazer. fugir é o melhor fazer, [desertar é, também, um ato de coragem](https://www.youtube.com/watch?v=B_yNmlgj6D8)  
 {: .text-justify}
@@ -33,8 +33,8 @@ Isso me fez ver que:
 {: .text-justify}
   
 À essa altura do campeonato, onde estou fisicamente doente e cedendo às dores e explosões que essas trazem, percebo que em breve até o que é objeto (hobbies, e não pessoas/sentimentos) está minando os doces sabores de viver.
-Devo ser demitida em breve e depois de 5 anos com horror a férias, pulando de lugar em lugar antes que desse tempo de alguém me cobrar descanso, começo a aceitar que talvez é disso que eu esteja precisando um pouco.
-A sinfonia do agridoce, azedoamargo, está cada vez mais torta no acostamento do mais e mais amargo. 
+Devo ser demitida logo e depois de 5 anos com horror a férias, pulando de lugar em lugar antes que desse tempo de alguém me cobrar descanso, começo a aceitar que talvez é disso que esteja precisando um pouco.
+A sinfonia do agridoce, azedoamargo, está cada vez mais tendente no acostamento do mais e mais amargo. 
 Faz anos que nem suco de limão consigo beber sem medir as consequências dos próximos 2 dias de dor nos dentes.  
 Quando cheguei na Jacqueline, falei que estava pagando porque queria sair de lá podendo morder um abacaxi sem querer me matar. Será que isso vai acontecer um dia? 
 {: .text-justify}
