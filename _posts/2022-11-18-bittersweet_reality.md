@@ -58,6 +58,6 @@ https://www.youtube.com/watch?v=1lyu1KKwC74
 {: .text-justify .text-align-last-right}
 
 --\> update 2024: minha irmã sabe dirigir, apenas não ama; se tiver oportunidade, delega a tarefa. de toda forma, a missão está cumprida: ela pode um dia salvar alguém ou a si mesma. pode fugir, pode fazer o que necessita e no momento em que desejar. obrigada pai, mas espero que ela NUNCA precise do que você pensou que ela fosse precisar naquela época. enquanto eu estiver viva, farei de tudo para que não precise, e antes de morrer também deixarei o máximo de meios para isso.  
-  
+{: .text-justify}
   
 --- GB (Nov/2022)
