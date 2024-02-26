@@ -23,4 +23,5 @@ date:   2024-02-26 16:55:41 -0300
 - suas reflexões momentâneas, por vezes demoradas e acompanhadas de um franzir de sobrancelhas com um olhar perseguindo o vazio, porém raramente não encontrando a resposta correta 
 - o fato de ser tão mais fácil de popular uma lista de coisas que amo do que de coisas que não gosto
 
+  
 ---GB (Feb/2024)
