@@ -39,6 +39,6 @@ guess it's time to recalculate my life-end spendings since i'm faded to this wea
   
 hope at least i'm able to end this shitty life of mine the way i always intended to. that would be my one, only and last successful achievement.  
 however better this 1 than none. 
-  
+{: .text-justify}  
   
 --- GB (Apr/2024)
