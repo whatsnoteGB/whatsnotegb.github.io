@@ -1,6 +1,6 @@
 ---
 layout: default
-title:  "circle-and-cycle-are-the-same"
+title:  "circles-and-cycles-are-the-same"
 date:   2024-04-04 17:01:02 -0300
 ---
 
@@ -12,8 +12,8 @@ i'm unbeliaveble in complete denial of what i'm living, even though i literally 
 - before yesterday >> READING the future i'm about to be submitted in the present  
 - yesterday >> LISTENING the future i'm about to be submitted in a very near present  
 - today >> WATCHING  [during a dream] the future from which i'm already receiving uproars since NOW
-  
-why do i still keep blinded in denial of what i'm giving in and up?  
+   
+why do i still keep blinded in denial of what i'm giving IN and UP?  
    
 i'm tired of being subdued, puny, debilited.  
 never capable of choosing things in my favor.  
@@ -28,14 +28,17 @@ my trips.
 my aspirations.
 my life. 
 distinct scales of decisions.
+
 either little, medium or big things; i'm always the one giving up in favor of the others.  
 judged my mom for doing this her whole life while i keep doing every day the same mistake under the sheets. 
   
-when will i collect sturdiness to keep myself up (will i, actually ?) instead of being smashed and serve as ladger and support for someone else and never finished anything i aim? 
-my desired to become something drops and drops every time i'm prunned and cut about my plans.  
+when will i collect sturdiness to keep myself up (will i, actually?) instead of being smashed and serve as a ladger and support for someone else and never finished anything i aim? 
+
+my motivation to become something drops and drops every time i'm prunned and cut about my plans.  
 guess it's time to recalculate my life-end spendings since i'm faded to this weakness and clearly will never get rid of it. 
   
-hope at least i'm able to end this shitty life of mine the way i always intended to. that would be my one, only and last successful achievement. however better this last one than none. 
+hope at least i'm able to end this shitty life of mine the way i always intended to. that would be my one, only and last successful achievement.  
+however better this 1 than none. 
   
   
 --- GB (Apr/2024)
