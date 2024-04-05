@@ -12,6 +12,8 @@ i'm unbeliaveble in complete denial of what i'm living, even though i literally 
 - before yesterday >> READING the future i'm about to be submitted in the present  
 - yesterday >> LISTENING the future i'm about to be submitted in a very near present  
 - today >> WATCHING  [during a dream] the future from which i'm already receiving uproars since NOW
+
+
    
 why do i still keep blinded in denial of what i'm giving IN and UP?  
    
