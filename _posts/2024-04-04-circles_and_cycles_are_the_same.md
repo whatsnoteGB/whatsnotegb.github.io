@@ -1,6 +1,6 @@
 ---
 layout: default
-title:  "circles-and-cycles-are-the-same"
+title:  "circles_and_cycles_are_the_same"
 date:   2024-04-04 17:01:02 -0300
 ---
 
