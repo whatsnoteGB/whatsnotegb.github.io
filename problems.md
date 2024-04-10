@@ -7,10 +7,10 @@ permalink: /problems/
 **Jan &nbsp;1st 2023:** screenshot 
 **Jan 14th 2024:** 
 GB: _hey kitty u can has cheeEEEZEBurger_ 
-<img src="/assets/images/peer2.jpeg" alt="peer2" width="200" />
+<img src="/assets/images/peer1.jpeg" alt="peer1" width="200" />
 <video src="/assets/videos/xb.mp4" width="200" controls title="back 0n track"></video>
 Me:  
-<img src="/assets/images/peer1.jpeg" alt="peer1" width="200" />
+<img src="/assets/images/peer2.jpeg" alt="peer2" width="200" />
 <img src="/assets/images/xb.jpg" alt="ME" width="200" />
 Us:
 We're on.
