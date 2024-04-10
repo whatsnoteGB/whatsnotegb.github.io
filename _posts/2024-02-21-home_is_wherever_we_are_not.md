@@ -17,7 +17,7 @@ mesmo amando a galisteu e a familia:
 sendo impossível reunir os 3, o lar é sempre onde ele NÃO estava no momento, porque o longe parece sempre mais verde e confortável.
 será que depois de voltar da corrida ele ia cortar um dos lares porque não aguentava mais se cansar revezando entre esses cenários inalcançáveis?
 ou será que ele ia escolher 1 único lar, abdicando de todos os outros e lidar de vez com tudo o que viesse neste escolhido? 
-nunca vou saber. 
-
+nunca vou saber. mas duvido atrozmente que ele planejava abdicar de tudo e escolher 1.
+{: .text-justify}
 
 --- GB (Feb/2024)
