@@ -17,7 +17,7 @@ i bid you farewell and release u from the burden of my senseless existence, comp
 all i want [is](https://www.youtube.com/watch?v=W7nmB20qJv4) you to be happy in the name of us all. ya r worth it.
 {: .text-justify}  
 
-
+>>> *"like a dog needs to hunt, people seek meaning. they wither away without it"*  
 <img src="/assets/images/useless-project-you-ve-worked-on-thread.png" alt="meaning_seek" width="100%" />
 
   
