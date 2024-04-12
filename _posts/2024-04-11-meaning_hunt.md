@@ -6,7 +6,7 @@ date:   2024-04-11 17:48:13 -0300
   
   
 as i grapple with the profound ache of abandonment, retracing the ephemeral footsteps of this fleeting passion, a stark realization washes over me — the shallowness of those words, the dearth of depth in your *expressions of love*.   
-everybody scans the indifference popping on your eyes.  
+` everybody scans the indifference popping on your eyes. `
 meanwhile Devotion, it seems, was a solitary seed that grew within me, nurtured by the soil of this commitment.  
 {: .text-justify}  
 u spoke of life's uncertainties as your reason for withdrawal, yet i foolishly believed this time would be different - a futile hope born from the **imbalance** that was, and remains, the truth.  
