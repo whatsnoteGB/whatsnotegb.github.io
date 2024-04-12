@@ -13,7 +13,8 @@ u spoke of life's uncertainties as your reason for withdrawal, yet i foolishly b
 nevertheless, a flame of determination fueled a resolve to seek depth and meaning in all my endeavors, even as i acknowledge the futility of such pursuits // i'm giving up, they'll be empty now, it's all always in vain.  
 {: .text-justify}  
 in a moment of devastating clarity i remember: i'm aware all my heartache will only end up with me. i'm the only one who holds, hugs and squeeze it to the last drop.  
-i bid you farewell and release u from the burden of my senseless existence, completely imbalanced with ur feelings and expectations, will do my best so you can chase around a real life meaning, hunt a purpose, seek your destiny. all i want [is](https://www.youtube.com/watch?v=W7nmB20qJv4) you to be happy.  
+i bid you farewell and release u from the burden of my senseless existence, completely imbalanced with ur feelings and expectations, will do my best so you can chase around a real life meaning, hunt a purpose, seek your destiny.  
+all i want [is](https://www.youtube.com/watch?v=W7nmB20qJv4) you to be happy in the name of us all. ya r worth it.
 {: .text-justify}  
 
 
