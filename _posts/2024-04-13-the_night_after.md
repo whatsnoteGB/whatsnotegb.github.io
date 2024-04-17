@@ -1,7 +1,7 @@
 ---
 layout: default
 title:  "the night after"
-date:   2022-04-13 19:03:04 -0300
+date:   2024-04-13 13:10:33 -0300
 ---
 
 i desperately try to relieve myself about being so mentally slaved to you - as a property you never asked for (and trying to convince myself that the other way round could be at least a little bit true, e.g hoping you would crave at some level the same from me) - relying on the indelicate thought that parts of your memories would be mine forever throught little illusions i have concerning the fantasies where i expect to be an exception. 
