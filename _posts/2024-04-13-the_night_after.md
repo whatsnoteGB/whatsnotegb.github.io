@@ -9,7 +9,7 @@ in rational moments, i am aware that any quick or easy gesture you extend to me 
 {: .text-justify}  
 you're the type that doesn't solve things when you think you have all the time to solve it. *no clock ticking. everyone will be alive and at any given time you'll be able to express yourself and solve it at your manner and place.* just like my father. and sometimes just like me. well, maybe everyone works this way. when you see time is ticking and it's ending, you value it, and see no boundaries to reach solutions for those you appreciate. 
 {: .text-justify}  
-but while you judge there's a huge time remaining, you sustain in your mind it's optional to solve, then you treat as whatever, and inevitably will end as whatever. 
+but while you judge there's a huge time remaining, you sustain in your mind it's optional to solve, then you treat as whatever, and inevitably it will end as whatever. 
 {: .text-justify}  
 any good or bad thing i try to attach us doesnt seem to affect you. even the unexpected souvenir i attempted to create when i asked you to stick your tongue on my bunghole. but just as you did it to me, you will do it to anybody else that you `I.` like or `II.` feel someway coerced to or `III.` even unwittingly, not knowing which hole you're into `IV.` in order to take revenge against me for some reason (which would be a betrayal at this point since we're together and even if we're not, we have the 6-months-after-last-contact commitment to notify and expound about each other's both love and sexual's life) or `IV.` doing it for the purpose of showing to yourself an overcome about your germs-fear.
 i don't even know which of these was the case this time. i'm not even aware how many more items/reasons could be there.  
