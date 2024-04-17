@@ -4,7 +4,7 @@ title:  "dependencias"
 date:   2024-04-14 13:03:04 -0300
 ---
 
-14 abril completam 3 meses desde a ligação de GB que trouxe 24/7 de mudanças. parabéns por tirar o pouco de sentido efêmero que coisas poderiam ter em pequenas conquistas. agora nenhum grande ou médio ou pequeno plano faz sentido sem você. tudo é ruim. 
+```14 abril completam 3 meses desde a ligação de GB que trouxe 24/7 de mudanças. parabéns por tirar o pouco de sentido efêmero que coisas poderiam ter em pequenas conquistas. agora nenhum grande ou médio ou pequeno plano faz sentido sem você. tudo é ruim.```
 
 — em duas ou mais ocorrências de  pensamentos q está cansado ou q estar longe está atrapalhando sua  concentração para definir rotinas ou tomar decisões ou enfim, pelas 'incertezas do futuro', avisar ISSO, ou seja avisar que o cansaço trazido pelas incertezas está batendo e afetando a produtividade  
 — se tiver pessoa do outro sexo no recinto e não tiver contexto dessa pessoa ser casada/namorada de alguém, e por ventura tiver uma conversa com troca de contato telefone ou rede social ou endereço, avisar pro outro que pessoa é essa, como ela é fisicamente, como foi o contexto desta conversa (vendendo algo? Promessa de ajudar com algo ou responder duvidas?), e compartilhar tb os perfis dessa pessoa pro outro ver --- mesmo q não haja troca de contato aqui mas haja possibilidade de encontrar a pessoa novamente por trabalhar num local específico, avisar pro outro quem é a pessoa, como ela é etc por que que essa pessoa poderá ser citada em mais ocasiões (previsao de quando/frequência esse lugar sera frequentado)   
