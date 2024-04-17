@@ -9,7 +9,8 @@ in rational moments, i am aware that any quick or easy gesture you extend to me 
 {: .text-justify}  
 you're the type that DOESN'T solve things when you think you have **all** the time to solve it.  
 *"no clock ticking. everyone will be alive and at any given time you'll be able to express yourself and solve it at your manner and place"*. as simples as that. 
-just like my father. and sometimes just like me. well, maybe everyone works this way. when you see clock is ticking and time is ending, that's when you value it, and measure no boundaries to reach solutions to be close to the ones you appreciate. but if you're like my grandfather, then even when you're dying, you won't give in. {: .text-justify} 
+just like my father. and sometimes just like me. well, maybe everyone works this way. when you see clock is ticking and time is ending, that's when you value it, and measure no boundaries to reach solutions to be close to the ones you appreciate. but if you're like my grandfather, then even when you're dying, you won't give in. 
+{: .text-justify} 
 pride is a _bucket_ that was completely emptied at your last relationship. now you will never drop it again. simply because you have: time.
 {: .text-justify}  
 for me it's either accepting the fate i'm cursed with other's residue/remainings, either looking somewhere for balance, assuming this might mean never find anything extremely good however also never deal with imbalance.
