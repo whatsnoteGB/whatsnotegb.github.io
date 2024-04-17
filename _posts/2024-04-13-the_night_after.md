@@ -1,4 +1,3 @@
-
 ---
 layout: default
 title:  "the night after"
@@ -6,7 +5,8 @@ date:   2022-04-13 19:03:04 -0300
 ---
 
 i desperately try to relieve myself about being so mentally slaved to you - as a property you never asked for (and trying to convince myself that the other way round could be at least a little bit true, e.g hoping you would crave at some level the same from me) - relying on the indelicate thought that parts of your memories would be mine forever throught little illusions i have concerning the fantasies where i expect to be an exception. 
-in rational moments, i am aware that any quick or easy gesture you extend to me is likely dwarfed by the efforts you invested in the others. if you did something quick or easy for me, then i know you did longer and more for someone else. 
+in rational moments, i am aware that any quick or easy gesture you extend to me is likely dwarfed by the efforts you invested in the others. if you did something quick or easy for me, then i know you did longer and more for someone else.
+{: .text-justify}  
 you're the type that doesn't solve things when you think you have all the time to solve it. *no clock ticking. everyone will be alive and at any given time you'll be able to express yourself and solve it at your manner and place.* just like my father. and sometimes just like me. well, maybe everyone works this way. when you see time is ticking and it's ending, you value it, and see no boundaries to reach solutions for those you appreciate. 
 {: .text-justify}  
 but while you judge there's a huge time remaining, you sustain in your mind it's optional to solve, then you treat as whatever, and inevitably will end as whatever. 
