@@ -4,8 +4,8 @@ title:  "dependencias"
 date:   2024-04-14 13:03:04 -0300
 ---
 
-```14 abril completam 3 meses desde a ligação de GB que trouxe 24/7 de mudanças. parabéns por tirar o pouco de sentido efêmero que coisas poderiam ter em pequenas conquistas. agora nenhum grande ou médio ou pequeno plano faz sentido sem você. tudo é ruim.```
-***
+```14 abril completam 3 meses desde a ligação de GB que trouxe 24/7 de mudanças. parabéns por tirar o pouco de sentido efêmero que coisas poderiam ter em pequenas conquistas. agora nenhum grande ou médio ou pequeno plano faz sentido sem você. **tudo é ruim**.```
+__________________________________________________________________________________
 
 — em duas ou mais ocorrências de  pensamentos q está cansado ou q estar longe está atrapalhando sua  concentração para definir rotinas ou tomar decisões ou enfim, pelas 'incertezas do futuro', avisar ISSO, ou seja avisar que o cansaço trazido pelas incertezas está batendo e afetando a produtividade
 {: .text-justify}
