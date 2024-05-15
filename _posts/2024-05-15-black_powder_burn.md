@@ -10,6 +10,6 @@ sendo assim, ter fé em alguém em quem você não pode tocar e nem ver, mas seg
 no fim das contas, relacionamentos nada mais são do que religiões individuais, até que a fé esvaia-se.
 {: .text-justify}
   
-<video src="/assets/videos/interpol.mp4" width="500" controls title="clock"></video>
+<center><video src="/assets/videos/interpol.mp4" width="500" controls title="clock" autoplay></video></center>
 
 --- GB (May/2024)
