@@ -1,6 +1,6 @@
 ---
 layout: default
-title:  "black-powder-burn"
+title:  "black powder burn"
 date:   2024-05-15 11:18:55 -0300
 ---
 
@@ -10,7 +10,8 @@ sendo assim, ter fé em alguém em quem você não pode tocar mas segue convence
 no fim das contas, relacionamentos nada mais são do que religiões individuais.
 {: .text-justify}
   
-  
-<video src="https://www.youtube.com/watch?v=3QiQZj6cfDM" controls title="i_wont"></video>
+<iframe width="420" height="315"
+src="https://www.youtube.com/watch?v=3QiQZj6cfDM">
+</iframe>
 
 --- GB (May/2024)
