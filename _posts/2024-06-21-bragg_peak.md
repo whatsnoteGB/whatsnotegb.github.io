@@ -5,7 +5,6 @@ date:   2024-06-21 11:18:55 -0300
 ---
 
 
-
   
 Bom dia  
 Vou escrever nada especifico pq vc já deixou claro q nao gosta e quanto mais eu me declaro menos vc responde entao kkk  
@@ -28,5 +27,6 @@ Herzlichen Glückwunsch zum Geburtstag
 Tenha um bom dia, sei q vai ser mais ocupado aí de dia com docinhos e mais as pesquisas do cartao pra COMPRAR essa passagem LOGO, então n vou te onerar, não esqueca tenho dentista no almoço, ai volto  p trabalhar, depois tomo banho fresco e ai te ligo depois do trabalho bem cheirosa pra dar oi com limão siciliano 😛  
 {: .text-justify}
   
+https://link.springer.com/chapter/10.1007/978-90-481-9661-6_5
 
 --- GB (May/2024)
