@@ -25,7 +25,10 @@ After a long time
 **Feb 17th & Feb 25th 2024**: criaturas conhecem suas criadoras
   
 **Mar &nbsp;8th 2024:** pecando na casa da oma, pré-airsoft  
-**Mar 27th 2024**: [ac](https://en.wikipedia.org/wiki/TIS-100)[CUL](https://www.larousse.fr/dictionnaires/francais/cul/21000)[mulator](https://en.wikipedia.org/wiki/TIS-100) : 14
+**Mar 27th 2024**: [ac](https://en.wikipedia.org/wiki/TIS-100)[CUL](https://www.larousse.fr/dictionnaires/francais/cul/21000)[mulator](https://en.wikipedia.org/wiki/TIS-100) : 14 (+2?)
 
-
+**Jul 14th 2024**: 14 to 14 -- comet crash...
+<img src="/assets/images/14-14.jpg" alt="14janto14jul" width="200"/>
+  
+  
 - GB&GB 
