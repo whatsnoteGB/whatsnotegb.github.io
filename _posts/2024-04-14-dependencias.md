@@ -17,7 +17,15 @@ date:   2024-04-14 13:03:04 -0300
 — quando perceber que está deixando de fazer coisas (1 ocorrencia já basta para este aviso) ou deixando de agir de maneiras específicas por conta da distância, se entregando ao 'escudo de se afastar pra não sofrer', avisar que está agindo diferente por conta dessa defesa automática de se afastar pra não sofrer/ou pq não está vendo futuro - este item deve ser avisado em todas as ocorrências q for identificado.. não só a primeira... todas as ações que acontecerem ou deixarem de acontecer enquanto a razão por trás da irreprocidade for a falta de perspectiva de futuro/afastamento de defesa automático pela distância devem ser avisados para que o outro não pense que a má vontade é puramente perda de interesse/transferência de interesse. Se for perda de interesse genuína, não precisa avisar nada. Só ser bosta mesmo e de preferência ter a decência de terminar ao invés de deixar o outro mendigando afeto até o outro desistir por cansaço  
 {: .text-justify}
 
-— se terminarmos, mesmo q não tiver contato nenhum, durante os próximos 6 meses após a ultima CONVERSA/CONTATO, informar quando se envolver com alguém // - quem é, fisicamente, foto, rede social, como conheceu, como desenvolveu a relação, e todas as perguntas/curiosidades complementares explícitas de qualquer cunho /sexual ou ideologico ou outro/ q o outro fizer sobre o caso devem ser respondidas.
+— se terminarmos, mesmo q não tiver contato nenhum, durante os próximos 6 meses após a ultima CONVERSA/CONTATO, informar quando tiver qualquer grau de envolvimento/interação com alguém do sexo oposto // - quem é, fisicamente, foto, rede social, como conheceu, como desenvolveu a relação, todas as perguntas/curiosidades complementares explícitas de qualquer cunho /sexual ou ideologico etc q o outro fizer sobre o caso devem ser respondidas.
+{: .text-justify}
+> Para ser considerado conversa/contato durante os 6 meses, deve existir algum tipo de retorno do interlocutor confirmando que a mensagem foi recebida e RESPONDIDA/reagida.
+{: .text-justify}
+> Se for enviado um e-mail sem resposta, ele não será considerado contato, pois não há como confirmar que foi recebido.
+{: .text-justify}
+> Se não houver conversa por vários meses e uma das partes fizer contato apenas para cumprir este artigo (como informar a outra pessoa sobre um novo relacionamento/interação/envolvimento), isso SERIA considerado contato MAS se esse "aviso" NÃO gerar perguntas ou conversas além da simples comunicação, ele NÃO será considerado como um contato.
+{: .text-justify}
+
   
   
   
