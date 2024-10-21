@@ -1,6 +1,6 @@
 ---
 layout: default
-title:  “qui o là”
+title:  qui o là
 date:   2024-10-21 3:33:04 -0300
 ---
 
