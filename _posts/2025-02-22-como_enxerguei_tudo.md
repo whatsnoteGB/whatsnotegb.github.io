@@ -18,7 +18,7 @@ Aspectos imaginados, mas não necessariamente previstos, atuaram como reminders 
 
 Decepções advindas de como enxergar a si mesmo e os impactos disso ao longo da vida levantaram o questionamento do nível de respeito e valor que deveria ser oferecido, já que o que se era idealizado estava em total desconformidade com aquilo que se apresentava, supostamente.
 
-Além dessas questões, posicionamentos e posturas que cogitava-se a flexibilização com o desenvolvimento de um GB relationship, também não foram ajustados, evidenciando a insuficiência para a criação de um backbone de qualquer relacionamento que tenha lealdade como um de seus pilares.
+Além dessas questões, posicionamentos e posturas, que cogitava-se a flexibilização com o desenvolvimento de um GB relationship, também não foram ajustados, evidenciando a insuficiência para a criação de um backbone de qualquer relacionamento que tenha lealdade como um de seus pilares.
 
 Apesar do rompimento, o amor e carinho seguiram existindo. Esses sentimentos, ainda que obscurecidos pela mágoa e pelo peso das circunstâncias, mantinham-se como uma reminiscência de algo que, por um tempo, parecia inabalável. Como ecos de uma história não completamente apagada, mas distante, incapaz de ser acessada sem trazer dor.
 
