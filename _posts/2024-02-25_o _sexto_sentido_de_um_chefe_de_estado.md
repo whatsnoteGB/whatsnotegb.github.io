@@ -1,7 +1,7 @@
 ---
 layout: default
 title:  "o sexto sentido de um chefe de estado"
-date:   2024-02-25 03:18:55 -0300
+date:   2025-02-25 03:18:55 -0300
 ---
 
 como ótima chefe de estado eu sabia que o comentário se importando repentinamente com algo para o qual esteve cagando até agora, uma observação supostamente solta, como outras enfiadas em contextos nada ver pra parecer que foi um escape, um desvio, fora do foco, mas duas vezes retomando esse assunto e em uma delas sugerindo que eu "talvez tivesse feito alguma talvez menção de que continuaria usando o site como bloco meu"... era óbvio que isso era um recado, era só a pura semente pra vir conferir a ideia e ler isso aqui pra ficar tentada a publicar uma resposta.  
