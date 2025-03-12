@@ -21,7 +21,8 @@ Que você comece a ter fé no que está investindo ao invés de ficar investindo
 você fez uma escolha, mas ainda há outras a serem feitas. 
 {: .text-justify}  
 
-<center><img src="/assets/images/hug_day_12_feb_2024_shows_all_available_faith_during_all_that_old_time.jpg" width="500" ></center>
+<img src="/assets/images/hug_day_12_feb_2024_shows_all_available_faith_during_all_that_old_time.jpg" width="100%" height="100%">
+
 
 te amo. mas não construo coisas sozinha. ou lidero uma equipe, ou estou nela. 
 e meu sexto sentido sempre me avisou que eu estava sozinha quando estava com você.
