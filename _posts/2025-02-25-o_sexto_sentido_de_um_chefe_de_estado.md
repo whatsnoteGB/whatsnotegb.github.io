@@ -29,7 +29,8 @@ infelizmente eu quero tentar estar com alguém um dia.
 alguém que não vire pra mim e diga "por mim tá bom assim, eu aqui, você aí, por mim ficaria pra sempre assim" sobre a distância, quero alguém que construa comigo. não sou sua pessoa. você escolheu uma destinada a morrer e agora tem que lidar com as próximas decisões. talvez seja bom você descansar antes... 
 pela última vez, nunca mais ouvirá isso de mim: te amo. manda oi pra jussara, sua segunda mãe =) quando isso tudo passar,  eu vou aí conhecê-la. quando não for mais uma péssima ideia.
 
-<center><video src="/assets/videos/jussara_s_2nd_mom_wishes_you_a_happy_marriage.mp4" width="500" controls title="clock" autoplay></video></center>
+só desmutar o vídeo para assistir o meme da sua vida:
+<center><video src="/assets/videos/jussara_s_2nd_mom_wishes_you_a_happy_marriage.mp4" width="500" controls title="clock" autoplay muted></video></center>
 
 
 --- GB (Feb/2025)
