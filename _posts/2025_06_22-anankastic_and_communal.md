@@ -7,7 +7,7 @@ date:   2025-06-22 4:03:04 -0300
 ### 1.0.
 _“Our dad was the hometown **hero** and built a little league field and yet we were all suffering with this real cruel person at home"_
 
-The communal narcissistic person is the, I call em sort of a (…) of your back narcissist. 
+The communal narcissistic person is the, I call em sort of a (inaudible) of your back narcissist. 
 These are the people who seem generous, they seem like they’re humanitarian, they seem like they’re trying to save the world; they’re out there putting out their message because that’s how they get their validation. 
 So, someone will say “it’s probably something as human altruism, isn’t anyone trying to do good in the world? Trying to do it for some validation”… That’s usually not the primary motivation; 
 the reason we know this is, if a communal narcissist isn’t getting lots of cheers and “congratulations and you’re so great and you’re the best” they will get quite angry, and they will usually take that anger out at family members, again, those people in their very inner circle. 
