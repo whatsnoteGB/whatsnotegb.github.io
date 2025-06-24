@@ -28,7 +28,7 @@ So there’s real **LACK of empathy** and an entitlement in that style.
 --- Dr. Ramani - direct transcription (12 oct 2024) | from 4:49 to 9:04
 
 
-CHOOSE NOT TO raise kids with an Anankastic ILL guy. 
-We're better off alone. 
+> CHOOSE NOT TO raise kids with an Anankastic ILL guy. 
+> We're better off alone. 
 
 ---GB (Jun/2025)
