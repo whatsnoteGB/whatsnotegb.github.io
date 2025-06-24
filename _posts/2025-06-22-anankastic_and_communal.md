@@ -30,6 +30,7 @@ So there’s real **LACK of empathy** and an entitlement in that style.
 
 > - CHOOSE NOT TO raise kids with an Anankastic ILL guy.
 > - Don't spend your precious time with a communal narcissist guy
+
 > We're better off alone. 
 
 ---GB (Jun/2025)
