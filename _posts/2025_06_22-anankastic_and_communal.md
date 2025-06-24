@@ -1,10 +1,10 @@
 ---
 layout: default
 title:  "Anankastic and Communal"
-date:   2025-06-23 4:03:04 -0300
+date:   2025-06-22 4:03:04 -0300
 ---
 
-1.0.
+### 1.0.
 _“Our dad was the hometown **hero** and built a little league field and yet we were all suffering with this real cruel person at home"_
 
 The communal narcissistic person is the, I call em sort of a (…) of your back narcissist. 
@@ -13,7 +13,8 @@ So, someone will say “it’s probably something as human altruism, isn’t any
 the reason we know this is, if a communal narcissist isn’t getting lots of cheers and “congratulations and you’re so great and you’re the best” they will get quite angry, and they will usually take that anger out at family members, again, those people in their very inner circle. 
 So lots of people will look like even a _celebrity_, seeming like a humanitarian and then SOMEDAY they they will see the LEAKS of people saying ‘oh my gosh this was the WORST NIGHTMARE THING I ever worked on or *their families will say “it was so hard, because we couldn’t even get support, our dad was the hometown hero and built a little league field and yet we were all suffering with this real cruel person at home”*: that’s the Communal narcissist.
 {: .text-justify}
-2.0.
+
+### 2.0.
 There was a personify style called the Anankastic style (or self-righteous), it’s like an obsessive compulsive style but like in terms with regard to detail, morality, these are often people who are very workaholic, they are judgmental, they are _stingy, they’re punitive, they are COLD,_ they often live very very very rigidly obsessively ordered lives, like everything just so, and if anyone messes with their schedule..[… inaudible] 
 These are the folks who will shame other people with _“I live better than you, I am better than you.”_ (thoughts only)
 And they are the folks who says **‘Dinner is at 6”** and someone has got **sick kids and quickly trying to get there at 6h15** and still they WILL SAY “WELL…..dinner is at 6 and we haven’t eaten”. So its comes off is very moralistic and cold.
